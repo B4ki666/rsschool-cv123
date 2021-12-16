@@ -5,10 +5,13 @@
 ## Contacts:
 
 
-**telegram:** [@B4ki666](https://t.me/B4ki666)\ 
-**email:** vanomsn@gmail.com\ 
-**github:** [B4ki666](https://github.com/B4ki666)\
-**discord:** Ivan Sys(@B4ki666)\     
+#### telegram: [@B4ki666](https://t.me/B4ki666)
+
+#### email: vanomsn@gmail.com
+
+#### github [B4ki666](https://github.com/B4ki666)
+
+#### discord Ivan Sys(@B4ki666)
 
 ## About me:
 
